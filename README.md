@@ -1,4 +1,4 @@
-Business Intelligence Analyst | Data Enthusiast
+#Business Intelligence Analyst | Data Enthusiast
 
     🌍 Location: Karachi Division, Sindh, Pakistan
 
